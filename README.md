@@ -1,0 +1,2 @@
+# junsoo.io
+introduce myself 
